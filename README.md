@@ -5,11 +5,10 @@ Thanks to them for their amazing work.
 
 # Mods list
 
-Kali - The Red Mist / TheJokingHydra : https://steamcommunity.com/sharedfiles/filedetails/?id=2931489915
-Valued - The Strongest of Today [Gojo] / Cherry - A Bit of Pix - Emy - Furious : https://steamcommunity.com/sharedfiles/filedetails/?id=3513877080
-Staff Manager / InklessBrush : https://steamcommunity.com/sharedfiles/filedetails/?id=2959702193
-Heion - The Strongest in History [Sukuna] / Cherry - A Bit of Pix - Mana - Furious : https://steamcommunity.com/sharedfiles/filedetails/?id=3513897396
-Ryomen Sukuna, The King Of Curses / LuiXee - Firerise: https://steamcommunity.com/sharedfiles/filedetails/?id=3261065305
+Here is an access to my Collection of mods !
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3800218780
 
 # Music list
+
 
